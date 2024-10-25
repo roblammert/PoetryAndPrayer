@@ -1,5 +1,12 @@
+---
+title: Come Holy Spirit
+category: prayer
+author: Robert J. Lammert <rob.lammert@gmail.com>
+date: 09/27/2024
+license: CC BY-NC-ND 4.0
+---
+
 # Come Holy Spirit
- 	By Rob Lammert <rob.lammert@gmail.com> - 09/27/2024
 	
 Come Holy Spirit, lead me.  
 Come Holy Spirit, heal me.  

@@ -1,5 +1,12 @@
-# Please Let Me In!
-	By: Rob Lammert <rob.lammert@gmail.com> - 10/18/2024
+---
+title: Please Let Me In
+category: prayer
+author: Robert J. Lammert <rob.lammert@gmail.com>
+date: 10/18/2024
+license: CC BY-NC-ND 4.0
+---
+
+# Please Let Me In
 	
 I pray that I'm not too late,  
 You've shown me the errors in my life.  
