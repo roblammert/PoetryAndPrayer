@@ -39,9 +39,9 @@ All of my ties to vanity, pride, and ego have dispersed.
 On my knees, to you, my oath is swore.  
 
 What I need is to rewrite my story.  
-Holy Spirit, I ask that it is my soul you save.
-Jesus, please release me from this purgatory.
-Lord God, Your love for me is all that I crave!
+Holy Spirit, I ask that it is my soul you save.  
+Jesus, please release me from this purgatory.  
+Lord God, Your love for me is all that I crave!  
 
 
 "What I Need" ©2024 by Robert Lammert is licensed under
