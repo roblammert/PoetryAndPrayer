@@ -18,7 +18,7 @@ It feels like I have been stuck here forever.
 I am trapped here with thoughts of my own.  
 How much more of this must I endeavor?  
 
-What I need is to know is what I've done wrong.  
+What I need is to know what I've done wrong.  
 How many sins have I committed against You?  
 Time stands still, it has been so long.  
 Where do I stand in this never ending queue?  
