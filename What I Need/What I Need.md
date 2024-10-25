@@ -16,7 +16,7 @@ When will I be brought into the fold?
 What I need is not to feel alone.  
 It feels like I have been stuck here forever.  
 I am trapped here with thoughts of my own.  
-How much more of this must I endeavour?  
+How much more of this must I endeavor?  
 
 What I need is to know is what I've done wrong.  
 How many sins have I committed against You?  
