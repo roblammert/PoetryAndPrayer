@@ -1,6 +1,10 @@
 ---
 title: What I Need
 category: poem
+sub-category:
+ - mercy
+ - purgatory
+ - forgiveness
 author: Robert J. Lammert <rob.lammert@gmail.com>
 date: 10/25/2024
 license: CC BY-NC-ND 4.0

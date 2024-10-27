@@ -1,6 +1,9 @@
 ---
 title: Come Holy Spirit
 category: prayer
+sub-catetory:
+ - healing
+ - mercy
 author: Robert J. Lammert <rob.lammert@gmail.com>
 date: 09/27/2024
 license: CC BY-NC-ND 4.0

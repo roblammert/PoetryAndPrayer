@@ -1,6 +1,10 @@
 ---
 title: Please Let Me In
 category: prayer
+sub-prayer:
+ - mercy
+ - forgiveness
+ - purgatory
 author: Robert J. Lammert <rob.lammert@gmail.com>
 date: 10/18/2024
 license: CC BY-NC-ND 4.0
