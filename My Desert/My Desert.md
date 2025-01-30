@@ -30,7 +30,7 @@ Heavy are these thoughts that weigh on me, the strain is so intense.
 Though there is only one pair of steps behind me, I do not trudge the dunes alone.  
 A demon, my tempter, joins at my left, willing my thoughts not to be my own.  
 At my right is my Lord and Savior, with his hand upon my shoulder.  
-He awaits me choose, hoping that for my sins, I will want to atone.  
+He awaits my choice, hoping that for my sins, I will want to atone.  
   
 My body is strained, my throat is parched, but my feet march on.  
 I will push myself until my temptations and distractions are gone.  
