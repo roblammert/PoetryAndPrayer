@@ -58,6 +58,6 @@ How did I lose track of so many things
 Lord, please help me, I'm wrecked with strife.   
   
 -----
-"##TITLE##" ©2025 by Robert Lammert is licensed under  
+"Workbench of the Forsaken" ©2025 by Robert Lammert is licensed under  
 Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International  
 License definition link: https://creativecommons.org/licenses/by-nc-nd/4.0/deed.en
